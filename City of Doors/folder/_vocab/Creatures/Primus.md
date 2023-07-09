@@ -1,0 +1,2 @@
+#3a #creature
+Primus, also known as **The One and Prime** and the **Supreme Modron**, was a Greater Power and the immortal ruler of [[Mechanus]] and the [[Modron|modrons]]. While it retained godlike power within its realm, Primus was not immortal and could be killed.

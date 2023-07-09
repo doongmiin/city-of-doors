@@ -1,0 +1,2 @@
+#5e #creature
+**Modrons** were a race of immortals known for their zealous adherence to the principles of law and order above all else. Just as fiends were considered the embodiment of evil and celestials the embodiment of good, so were modrons the embodiment of the universal principle of order.
