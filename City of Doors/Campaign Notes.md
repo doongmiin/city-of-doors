@@ -7,4 +7,16 @@
 	- The Council of Order building will close in about 1 hour
 
 - July 9, 2023
-	- 
+	- Utility closet door > Utility closet > Mirror > Magic Mansion (7th level spell)
+	- [[Fama Flintstrike]] grabbed one of the books in [[Heron]]'s magic mansion.
+	- The party defended Heron against a band (lead by a female leader)
+	- The fight ended when thousands of Modrons began marching into Automata through the Gate to Mechanus (Barnaby knows that this is a bit early for the [[Great Modron March]])
+	- The cat rewarded us with the deed to the property where we met him.
+		- He said that there is a jink upstairs in the bedroom, there's a loose floorboard under the bed.
+	- The party came back to Sigil, we walked into a murder scene (the crowd murmurs thst this was the doing of "the midnight slasher")
+	- The victim's corpse has black veins in the shape of spiderwebs protruding from the wound. The wound is a deep gash across the chest, no rigor mortis yet. There is a pool of blood. There is a rusty blade that's probably the murder weapon.
+	- Some people with the Harmonium armor (acting as the police force in Sigil) detained our party.
+		- Ivan Bennett
+		- Enchanted blade, similar to red wizard's blade
+		- We are free to go, nut we are instructed to stay in Sigil for 24-48 hours.
+	- We arrive at the store and there's 734gp (s)
