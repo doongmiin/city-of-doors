@@ -20,3 +20,6 @@
 		- Enchanted blade, similar to red wizard's blade
 		- We are free to go, nut we are instructed to stay in Sigil for 24-48 hours.
 	- We arrive at the store and there's 734gp (s)
+
+- Discord
+	- 
